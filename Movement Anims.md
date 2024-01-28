@@ -12,7 +12,7 @@ In these animations, I complement certain rules of animation, there are subtle d
 
 Run Animations:
 
-Run Animation 1: https://streamable.com/er3dbo.
+Run Animation 1: https://streamable.com/cjh4kw.
 
 Running animations, the idea here is to play with the poses, I get better running animations than walking ones lol
 
